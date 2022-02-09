@@ -1,4 +1,4 @@
-- 👋 Hi, I’m father of 1 year old baby 👨🏼‍🍼
+- 👋 Hi, I’m father of 2 year old baby 👨🏼‍🍼
 
 <!---
 KongZ/KongZ is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
